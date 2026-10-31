@@ -1,2 +1,2 @@
 # Certifications
-Here these are my completion Certifications. 
+Here these are all my completion Certifications. 
